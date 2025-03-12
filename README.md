@@ -3,6 +3,7 @@
 
 ## Jeison Daniel Garzon Rodriguez
 **Profesión:** _Tecnico Integral en Operaciones Logisticas_
+
 Soy estudiante del programa de Integración en Operaciones Logísticas con una sólida base de conocimientos en la gestión de procesos logísticos, como carga y descarga, picking, packing y distribución tienda a tienda. A lo largo de mi experiencia laboral, he desarrollado habilidades en la optimización de rutas, organización eficiente de tareas y control de inventarios, lo que me permite contribuir de manera efectiva a la mejora de los procesos operativos.
 
 Además, tengo formación en fotografía (nivel uno) y soy hábil en la edición de imágenes con Adobe Photoshop y Lightroom, lo que me ha permitido combinar creatividad con precisión técnica. Mi experiencia también incluye ventas y trabajo en el sector de la construcción, lo que me ha proporcionado una visión integral y versátil de diversas industrias y una capacidad para adaptarme rápidamente a nuevos desafíos.
